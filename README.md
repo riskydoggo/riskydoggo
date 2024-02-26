@@ -4,5 +4,6 @@ I'm **JJ Loftus** and I'm a first-year Electrical Engineering student at the Uni
 
 ![FrankHarrisUtsaGIF](https://github.com/riskydoggo/riskydoggo/assets/143219280/6a2c2841-2c24-42ac-b233-5545fd540b01)
 
-In my free time, I enjoy drawing, petting my cat, and playing basketball⛹️. 
-Send me an email @jjloftus05@outlook.com if you need to contact me. Thank you!
+In my free time, I enjoy drawing, petting my cat, and playing basketball⛹️.
+
+ Feel free to send me an email @jjloftus05@outlook.com if you would like to reach out to me. Thank you!
