@@ -1,6 +1,6 @@
 # Hi, I'm JJ Loftus 👋
 
-I'm a first-year Electrical Engineering student and an AFROTC cadet at the University of Texas at San Antonio.
+I'm a third-year Electrical Engineering student and AFROTC cadet at the University of Texas at San Antonio.
 
 In my free time, I enjoy drawing, petting my cat, and playing basketball ⛹️.
 
