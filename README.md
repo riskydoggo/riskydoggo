@@ -2,7 +2,7 @@
 
 I'm a third-year Electrical Engineering student and AFROTC cadet at the University of Texas at San Antonio.
 
-In my free time, I enjoy drawing, petting my cat, and playing basketball ⛹️.
+In my free time, I enjoy drawing, lifting, reading, hiking, and petting my cat!
 
 Feel free to send me an email at **jjloftus05@outlook.com** if you’d like to reach out. Thank you!
 
